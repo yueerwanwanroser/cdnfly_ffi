@@ -6,7 +6,9 @@
 
 **邮箱：franciscojohnson7098@gmail.com**
 
-不会部署、安装过程报错、需要技术支持，请联系上方邮箱。
+**Telegram：[@mariawfire](https://t.me/mariawfire)**
+
+不会部署、安装过程报错、需要技术支持，请联系上方邮箱或 Telegram。
 
 ---
 
